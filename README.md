@@ -1,1 +1,1 @@
-https://rolling-scopes-school.github.io/yuliyashu-JSFEPRESCHOOL/eco-sounds/
+https://yuliyashu.github.io/eco-sounds/
